@@ -1,1 +1,1 @@
-# jamban2022
+## Acara Seminar tersebut OFFLINE, tidak ada ONLINE meet atau HYBRID, terimakasih
